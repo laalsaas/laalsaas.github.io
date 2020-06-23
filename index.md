@@ -6,3 +6,7 @@ Conner Reeves is a 15 year old teenager and material arts expert who gets recrui
 * british junior-champion in Kickboxing
 * great protective instinct
 * insane conscientiousness
+
+
+In *Bodyguard - Die Geisel" Connor Reeve said:
+>Ich versichere Ihnen Mr. President, dass ich alles tun werde um ihre Tochter zu schützen.
