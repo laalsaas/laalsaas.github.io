@@ -10,3 +10,6 @@ Conner Reeves is a 15 year old teenager and material arts expert who gets recrui
 
 In *Bodyguard - Die Geisel" Connor Reeve said:
 >Ich versichere Ihnen Mr. President, dass ich alles tun werde um ihre Tochter zu schützen.
+
+
+<img src="https://www.bodyguard-books.co.uk/wp-content/uploads/2013/08/Hostage.png"/>
